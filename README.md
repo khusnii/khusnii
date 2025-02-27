@@ -15,4 +15,4 @@ Have a look at my portfolio items in this profile. Once you feel we are a good f
 
 Looking forward to hearing from you.
 
-[Linkedin](https://www.linkedin.com/in/khusniddinisroilov/) | [Telegram](https://t.me/khusniddin2001)   
+[Linkedin](https://www.linkedin.com/in/khusniddinisroilov/)
